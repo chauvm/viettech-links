@@ -1,3 +1,6 @@
+_Want to contribute to this list? Submit a PR to https://github.com/viettech0/viettech-links._
+
+
 [AMA - FROM EX-FELON TO A MILLIONAIRE ENGINEER](https://www.facebook.com/groups/1177470863076165/posts/1222857878537463/)
 
 [Con đi mẫu giáo, mẹ cắp sách tới trường](https://www.facebook.com/groups/1177470863076165/posts/1191898968300021/)
